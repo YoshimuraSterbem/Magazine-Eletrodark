@@ -1,0 +1,2 @@
+# Magazine-Eletrodark
+Loja Online
